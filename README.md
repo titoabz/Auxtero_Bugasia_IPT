@@ -4,5 +4,3 @@ Abby Angelou B. Auxtero
 Third Year
 Milky Bugasia
 Third Year
-
-CHloue hane ooka
